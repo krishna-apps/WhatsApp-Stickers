@@ -5,9 +5,21 @@ Thank you very much for using our App.
 
 This app provides Srila Prabhupada Daily Quotes as WhatsApp Sticker Pack as well as images.
 
-- [Love Stickers for WhatsApp on play store](https://play.google.com/store/apps/details?id=c.m.wa.sticker.love.adsFree)
+- [Romantic Love Stickers for WhatsApp on play store](https://play.google.com/store/apps/details?id=c.m.wa.sticker.love.adsFree)
 
-- [Love Stickers for WhatsApp - free version on play store](https://play.google.com/store/apps/details?id=c.m.wa.sticker.love.free)
+- [Romantic Love Stickers for WhatsApp - free version on play store](https://play.google.com/store/apps/details?id=c.m.wa.sticker.love.free)
+
+- [Covid-19 and PM Modi WhatsApp Stickers on play store](https://play.google.com/store/apps/details?id=c.m.wa.sticker.Covid19.adsFree)
+
+- [Covid-19 and PM Modi WhatsApp Stickers Stickers - free version on play store](https://play.google.com/store/apps/details?id=c.m.wa.sticker.Covid19.free)
+
+- [Srila Prabhupada Daily Quotes WhatsApp Stickers on play store](https://play.google.com/store/apps/details?id=c.m.wa.sticker.SrilaPrabhupadaQuotes.adsFree)
+
+- [Srila Prabhupada Daily Quotes WhatsApp Stickers - free version on play store](https://play.google.com/store/apps/details?id=c.m.wa.sticker.SrilaPrabhupadaQuotes.free)
+
+- [Srila Prabhupada WhatsApp Stickers on play store](https://play.google.com/store/apps/details?id=c.m.wa.sticker.SrilaPrabhupada.adsFree)
+
+- [Srila Prabhupada WhatsApp Stickers - free version on play store](https://play.google.com/store/apps/details?id=c.m.wa.sticker.SrilaPrabhupada.free)
 
 ## Privacy Policy
 
