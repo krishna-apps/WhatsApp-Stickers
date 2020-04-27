@@ -3,7 +3,7 @@
 
 Thank you very much for using our App.
 
-This app provides Srila Prabhupada Daily Quotes as WhatsApp Sticker Pack as well as images.
+These App provides Awsome WhatsApp Sticker Pack as well as Images.
 
 > [Stay Home Stay Safe](https://play.google.com/store/apps/details?id=c.m.wa.sticker.stayhome) is Completely Free, No personal data collected, and no Ads - It is completely Free.
 
