@@ -7,6 +7,8 @@ These App provides Awsome WhatsApp Sticker Pack as well as Images.
 
 > [Stay Home Stay Safe](https://play.google.com/store/apps/details?id=c.m.wa.sticker.stayhome) is Completely Free, No personal data collected, and no Ads - It is completely Free.
 
+This Privacy Policy Applies for All the Apps Listed Below.
+
 - [Romantic Love Stickers for WhatsApp on play store](https://play.google.com/store/apps/details?id=c.m.wa.sticker.love.adsFree)
 
 - [Romantic Love Stickers for WhatsApp - free version on play store](https://play.google.com/store/apps/details?id=c.m.wa.sticker.love.free)
