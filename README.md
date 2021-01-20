@@ -9,6 +9,9 @@ This page is used to inform visitors regarding our policies with the collection,
   </iframe>
 </figure>
 
+## Featured App
+
+[AppAwesome Romantic Love Stickers](https://taimienphi.vn/download-awesome-romantic-love-stickers-91008)
 
 > ## Gist
 > For Paid Version
@@ -125,3 +128,5 @@ If you have any questions or suggestions about our Terms and Conditions, do not 
 [website](https://krishna-apps.github.io/) 
 
 [profile](https://mayank1513.github.io/) 
+
+[AppAwesome Romantic Love Stickers](https://taimienphi.vn/download-awesome-romantic-love-stickers-91008)
